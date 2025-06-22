@@ -9,3 +9,5 @@ I host FTS (Find The Skin) in ponytown sometimes..I don't host everytime..I some
 •°○ pretty much closest friends in ponytown are Lumi and Veen <3 (can't mention)°
 
 □°○Guys I'm getting myself clipped on purpose pls 🙏 □○°
+
+@iminyourwallz @starrylumi <3
