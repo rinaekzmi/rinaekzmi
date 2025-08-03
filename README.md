@@ -6,6 +6,6 @@
 
 °• you can find me at the hoyoverse area !! if im not there its because : im off obviously, and also sometimes i go to my own place, idk how to explain where but wtv !!
 
-•°○ pretty much closest friends in ponytown are Lumi and Veen <3 (can't mention)°
+•°○ pretty much closest friends in ponytown are Lumi and Veen <3 °
 
 □°○Guys I'm getting myself clipped on purpose pls 🙏 □○°
