@@ -1,4 +1,4 @@
-•Actually my real name is already Ivy ahh•°
+°•Yummers😋•°
 
 ☆°•I'm not into fandoms and I don't know much either. Games I play >> Genshin Impact;Zenless Zone Zero;Roblox (only plays evade);Cookie Run Kingdom ;Colourful Stage(pjsk);Gacha life and more^; and then the one I play the most ;Ponytown; I mostly do genshin cos so don't expect much from me💔•°☆ 
 
